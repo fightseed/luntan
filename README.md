@@ -30,4 +30,4 @@ SIS论坛 | 色站，我们更专业
 
 可向SIS论坛回家邮箱 catspeedboy@gmail.com 或 bigstonehand@gmail.com 发邮件，标题尽量7个字以上 通顺语句以免被当作垃圾邮件屏蔽掉
 
-> 建议使用国外邮箱（`outlook`.com `gmail`.com `yahoo`.com `protonmail`.com...）发送。
+> 建议使用国外邮箱（`outlook`.com `gmail`.com `yahoo`.com `protonmail`.com...）发送
