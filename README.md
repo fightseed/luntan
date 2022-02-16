@@ -11,9 +11,13 @@ description: >-
 SIS论坛 | 色站，我们更专业   
 感谢您关注华人第一品牌成人论坛：SIS论坛
 
- | 名称 | 永久地址 | 客户端 | 回家邮箱 | 最新地址发布页 |
+ | 名称 | 永久地址 | 客户端exe | 回家邮箱 | 最新地址发布页 |
 |----|----|----|----|----|
-|色中色| sexinsex.net  | exe[下载1](https://www.mediafire.com/file/03bf9sek6nk5tuv/%25E8%2589%25B2%25E4%25B8%25AD%25E8%2589%25B2%25E5%259C%25B0%25E5%259D%2580%25E5%258F%2591%25E5%25B8%2583%25E5%2599%25A8.rar/file)exe[下载2](https://disk.yandex.ru/d/fm8_dQ_DApPXVQ) | catspeedboy@gmail.com  | [jintou.gitbook.io](https://jintou.gitbook.io)
+|色中色| sexinsex.net  | [发布器](https://www.mediafire.com/file/03bf9sek6nk5tuv/%25E8%2589%25B2%25E4%25B8%25AD%25E8%2589%25B2%25E5%259C%25B0%25E5%259D%2580%25E5%258F%2591%25E5%25B8%2583%25E5%2599%25A8.rar/file)| catspeedboy@gmail.com  | [jintou.gitbook.io](https://jintou.gitbook.io)
+|2048核基地| 2048  |[发布器](https://github.com/jtdh/luntan/files/8078873/2048.zip)| hjd2048@gmail.com  |  [1](http://50qc.com:2048/) &  [2](http://26t.net:2048/)
+
+
+
 
 **（SIS论坛以及更多）实时更新地址**
 >汇总网址： [`发车论坛导航大全|动漫二次元ACG导航大全|磁力导航大全_bt导航_磁力站大全| 尽头导航_磁力终点导航github | 照亮狼家`](https://jintou.gitbook.io)  https://jintou.gitbook.io  
