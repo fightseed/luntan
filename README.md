@@ -13,7 +13,7 @@ SIS论坛 | 色站，我们更专业
 
  | 名称 | 客户端exe | 回家邮箱 | 最新地址发布页 |
 |----|----|----|----|
-|色中色论坛(sexinsex.net)| [①](https://www.mediafire.com/file/03bf9sek6nk5tuv/%25E8%2589%25B2%25E4%25B8%25AD%25E8%2589%25B2%25E5%259C%25B0%25E5%259D%2580%25E5%258F%2591%25E5%25B8%2583%25E5%2599%25A8.rar/file)| catspeedboy@gmail.com  | [174.127.195.66](http://174.127.195.66/bbs/)
+|色中色论坛(sexinsex.net)| [①](https://www.mediafire.com/file/03bf9sek6nk5tuv/%25E8%2589%25B2%25E4%25B8%25AD%25E8%2589%25B2%25E5%259C%25B0%25E5%259D%2580%25E5%258F%2591%25E5%25B8%2583%25E5%2599%25A8.rar/file)| catspeedboy@gmail.com  | [①](http://174.127.195.66/bbs/)
 |2048核基地|[①](https://github.com/jtdh/luntan/files/8078873/2048.zip) &  [②](https://www.mediafire.com/file/c400441xvn6qglx/2048%25E6%25A0%25B8%25E5%259F%25BA%25E5%259C%25B0%25E5%258F%2591%25E5%25B8%2583%25E5%2599%25A8.zip/file)| hjd2048@gmail.com  |  [①](http://50qc.com:2048/) &  [②](http://26t.net:2048/)
 |草榴社区(t66y.com)|[草榴WinXP_7_10_IOS](https://www.mediafire.com/file/wc2ggpxg4nxyhec/%25E8%258D%2589%25E6%25A6%25B4%25E5%258F%2591%25E5%25B8%2583%25E5%2599%25A8.zip/file)| cldzhq@gmail.com  |  [gfqzkep.com](http://www.gfqzkep.com/)
 |1024核工厂(xp1024.com &1024xp.com)|[①](https://github.com/jtdh/luntan/files/8080733/1024.zip)[②](https://www.mediafire.com/file/iqendjdz0cjra29/1024%25E6%25A0%25B8%25E5%25B7%25A5%25E5%258E%2582%25E5%258F%2591%25E5%25B8%2583%25E5%2599%25A8.zip/file)| ---  |  [①](http://b11.hjfgczh733.rocks/bbs2.php)[②](http://k11.csjbzcjnr.rocks/pw/)[③](http://b11.zbwymdcjsgg.rocks/pw/html_data/3/1711/846891.html)
