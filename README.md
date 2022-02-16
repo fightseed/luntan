@@ -13,8 +13,8 @@ SIS论坛 | 色站，我们更专业
 
  | 名称 | 客户端exe | 回家邮箱 | 最新地址发布页 |
 |----|----|----|----|
-|色中色论坛(sexinsex.net)| [发布器](https://www.mediafire.com/file/03bf9sek6nk5tuv/%25E8%2589%25B2%25E4%25B8%25AD%25E8%2589%25B2%25E5%259C%25B0%25E5%259D%2580%25E5%258F%2591%25E5%25B8%2583%25E5%2599%25A8.rar/file)| catspeedboy@gmail.com  | [jintou.gitbook.io](https://jintou.gitbook.io)
-|2048核基地|[发布器](https://github.com/jtdh/luntan/files/8078873/2048.zip)| hjd2048@gmail.com  |  [1](http://50qc.com:2048/) &  [2](http://26t.net:2048/)
+|色中色论坛(sexinsex.net)| [①](https://www.mediafire.com/file/03bf9sek6nk5tuv/%25E8%2589%25B2%25E4%25B8%25AD%25E8%2589%25B2%25E5%259C%25B0%25E5%259D%2580%25E5%258F%2591%25E5%25B8%2583%25E5%2599%25A8.rar/file)| catspeedboy@gmail.com  | [jintou.gitbook.io](https://jintou.gitbook.io)
+|2048核基地|[①](https://github.com/jtdh/luntan/files/8078873/2048.zip) &  [②](https://www.mediafire.com/file/c400441xvn6qglx/2048%25E6%25A0%25B8%25E5%259F%25BA%25E5%259C%25B0%25E5%258F%2591%25E5%25B8%2583%25E5%2599%25A8.zip/file)| hjd2048@gmail.com  |  [①](http://50qc.com:2048/) &  [②](http://26t.net:2048/)
 
 
 
