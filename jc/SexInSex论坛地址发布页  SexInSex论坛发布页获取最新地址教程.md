@@ -9,7 +9,7 @@ SexInSex论坛 | 色站，我们更专业
 **（SexInSex论坛以及更多）实时更新地址**
 >汇总网址： [`发车论坛导航大全|动漫二次元ACG导航大全|磁力导航大全_bt导航_磁力站大全| 尽头导航_磁力终点导航github | 照亮狼家`](https://jintou.gitbook.io)  https://jintou.gitbook.io  
 
->汇总网址： [`备用网址`](https://github.com/jtdh/jintou/)  https://github.com/jtdh/jintou
+>汇总网址： [`备用网址`](https://github.com/jtdh/jtdh/)  https://github.com/jtdh/jtdh
 
 **一个推荐**
 ![enter image description here](https://img68.pixhost.to/images/22/264638732_91-app.jpg)
@@ -156,4 +156,4 @@ Selffie Digest Section | 自拍精品区
 
 >汇总网址（SexInSex论坛以及更多）： [`发车论坛导航大全|动漫二次元ACG导航大全|磁力导航大全_bt导航_磁力站大全| 尽头导航_磁力终点导航github | 照亮狼家`](https://jintou.gitbook.io/)  [https://jintou.gitbook.io](https://jintou.gitbook.io)
 
->[`备用网址（SexInSex论坛以及更多）`](https://github.com/jtdh/jintou)  [https://github.com/jtdh/jintou](https://github.com/jtdh/jintou)
+>[`备用网址（SexInSex论坛以及更多）`](https://github.com/jtdh/jtdh)  [https://github.com/jtdh/jtdh](https://github.com/jtdh/jtdh)
