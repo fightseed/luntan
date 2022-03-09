@@ -17,6 +17,8 @@ description: >-
 
 | 名称                                                |                          客户端exe                           |                       回家邮箱                        |                        最新地址发布页                        |
 | --------------------------------------------------- | :----------------------------------------------------------: | :---------------------------------------------------: | :----------------------------------------------------------: |
+| AvCar成人论坛_老司机汇集地     | [最新地址](http://dd.ma/jCcKhLYB) | [最新地址](http://dd.ma/jCcKhLYB) | [最新地址](http://dd.ma/jCcKhLYB) |
+| 哔哩兔ACG资源站                | [最新地址](http://dd.ma/v0F94YYC) | [最新地址](http://dd.ma/v0F94YYC) | [最新地址](http://dd.ma/v0F94YYC) |
 | 色中色论坛(sexinsex.net)                            | [①](https://www.mediafire.com/file/03bf9sek6nk5tuv/%E8%89%B2%E4%B8%AD%E8%89%B2%E5%9C%B0%E5%9D%80%E5%8F%91%E5%B8%83%E5%99%A8.rar/file) | catspeedboy@gmail.com |               [①](http://174.127.195.66/bbs/)                |
 | 2048核基地                                          | [①](https://github.com/jtdh/luntan/files/8078873/2048.zip) & [②](https://www.mediafire.com/file/c400441xvn6qglx/2048%E6%A0%B8%E5%9F%BA%E5%9C%B0%E5%8F%91%E5%B8%83%E5%99%A8.zip/file) |     hjd2048@gmail.com    |    [①](http://50qc.com:2048/) & [②](http://26t.net:2048/)    |
 | 草榴社区(t66y.com)                                  | [WinXP_7_10_IOS](https://www.mediafire.com/file/wc2ggpxg4nxyhec/%E8%8D%89%E6%A6%B4%E5%8F%91%E5%B8%83%E5%99%A8.zip/file) |      cldzhq@gmail.com      |            [gfqzkep.com](http://www.gfqzkep.com/)            |
