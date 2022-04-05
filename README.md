@@ -26,17 +26,13 @@
 | [AvCar成人论坛_老司机汇集地](https://l.tell365.top/) |                [老司机交流飙车区！](https://l.tell365.top/)                |   老司机兴趣圈子区！   |     推特福利姬     |
 | VR高清大社区圈                                              |             夫妻交流讨论圈（绿奴多）             |     伪娘交流讨论圈     | 老司机兴趣圈子区！ |
 | 无码/有码/中字高清                                          |               在线观看区（共三区）               | 恋物癖/SM/变装性TS圈 |    女优百科大全    |
-| ACG动漫资源交流圈                                 | 真实家庭乱论视图交流地 |        呦美萝莉        |       [进入老司机汇集地](https://l.tell365.top/)              |
+| [ACG动漫资源交流圈](https://l.tell365.top/)                                 | [真实家庭乱论视图交流地](https://l.tell365.top/) |        [呦美萝莉](https://l.tell365.top/)        |       [进入老司机汇集地](https://l.tell365.top/)              |
 |      |  |  | |
 |      |  |  | |
 |      |  |  | |
 |      |  |  | |
 |      |  |  | |
 |      |  |  | |
-| 哔哩兔-最大的ACG资源站                | [最新地址①](https://bili.6vs5.com) | [最新地址②](http://dd.ma/v0F94YYC) | ACG游戏 |
-| 二次元资源汇集                | 声音资源/MMD专区 | 动漫里番/图书/剧场 | 福利姬/cos |
-|                                                    |                                                              |                                              |                                                              |
-|                                                    |                                                              |                                              |                                                              |
 | 色中色论坛(sexinsex.net)                           | [①](https://www.mediafire.com/file/03bf9sek6nk5tuv/%E8%89%B2%E4%B8%AD%E8%89%B2%E5%9C%B0%E5%9D%80%E5%8F%91%E5%B8%83%E5%99%A8.rar/file) |            catspeedboy@gmail.com             |               [①](http://174.127.195.66/bbs/)                |
 | 2048核基地                                         | [①](https://github.com/jtdh/luntan/files/8078873/2048.zip) & [②](https://www.mediafire.com/file/c400441xvn6qglx/2048%E6%A0%B8%E5%9F%BA%E5%9C%B0%E5%8F%91%E5%B8%83%E5%99%A8.zip/file) |              hjd2048@gmail.com               |    [①](http://50qc.com:2048/) & [②](http://26t.net:2048/)    |
 | 草榴社区(t66y.com)                                 | [WinXP_7_10_IOS](https://www.mediafire.com/file/wc2ggpxg4nxyhec/%E8%8D%89%E6%A6%B4%E5%8F%91%E5%B8%83%E5%99%A8.zip/file) |               cldzhq@gmail.com               |            [gfqzkep.com](http://www.gfqzkep.com/)            |
@@ -56,11 +52,6 @@
 | [91聚合平台app成人版抖音](https://v.hallo365.top/) |             [外围模特](https://v.hallo365.top/)              |     [高端伴游](https://v.hallo365.top/)      |             [情人包养](https://v.hallo365.top/)              |
 | JKF 捷克論壇                                       |                              -                               |                      -                       |           [jkforum.net](https://www.jkforum.net/)            |
 | AV狼(avlang.com)                                   | [①](https://github.com/jtdh/luntan/files/8090014/avlang.zip) &  [②](https://www.mediafire.com/file/rfvh7xpelwby9af/avlang.zip/file) |                      -                       |       [①](http://www.avlang.xyz/dizhi.php) 答：avlang        |
-| 杏吧                                               | [①](https://github.com/jtdh/luntan/files/8090019/default.zip) &  [②](https://www.mediafire.com/file/i1c5fclkx7z5eq7/%25E6%259D%258F%25E5%2590%25A7.zip/file) |            vipvipxingba@gmail.com            | [①](https://xn--50-ff8ct7p.com/) [②](https://xn--86-ff8ct7p.com/) [③](https://xn--36-ff8ct7p.com/) [④](https://xn--26-ff8ct7p.com/) [⑤](https://xn--16-ff8ct7p.com/) |
-| 桃花族                                             | [①](https://github.com/jtdh/luntan/files/8090018/dizhi.zip) &  [②](https://www.mediafire.com/file/vkktvxr0uyl1ocb/%25E6%25A1%2583%25E8%258A%25B1%25E6%2597%258Fdizhi.zip/file) |                      -                       |                  [①](http://taohuale3.com)                   |
-| 色花堂                                             | [①](https://github.com/jtdh/luntan/files/8090012/98.zip) &  [②](https://www.mediafire.com/file/fdej02r13erql2r/98%25E5%25A0%2582%25E7%25BD%2591%25E5%259D%2580%25E5%258F%2591%25E5%25B8%2583%25E5%2599%25A8.zip/file) |               shtfab@gmail.com               |            [①](https://www.ebay.com/usr/98dizhi/)            |
-| 海角社区                                           |       [apk](https://hj3a7.com/down/20211027173050.apk)       |                      -                       |                    [①](https://hjf9e.com)                    |
-| 村花论坛(cunhua.cc)                                |                              -                               |                      -                       | [①](https://www.xingba.pw) &  [②](https://www.cunhua.sbs//)  |
 | 比思论坛                                           |                              -                               |                      -                       |           [caregirl](http://caregirl.net/302.html)           |
 
 
@@ -73,16 +64,6 @@
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
-
-
-
-| 正规交友平台                                                |      真诚真实交友请入                                              |                                               |                                 ⭐⭐⭐⭐⭐               |
-| --------------------------------------------------- | :----------------------------------------------------------: | :---------------------------------------------------: | :----------------------------------------------------------: |
-|   [正规-同城无任何套路](https://wan.x93x.com)   | [正规-附近真实交友](https://h5.grabchatapp.com/Mine/InviteMale.aspx?channelCode=C1003&ID=7336902)| [正规-交友语音聊天](https://h5.grabchatapp.com/Mine/InviteMale.aspx?channelCode=C1003&ID=7336902) |[正规-交友视频聊天](https://h5.grabchatapp.com/Mine/InviteMale.aspx?channelCode=C1003&ID=7336902) |
-|    [正规-国内男女交友](https://h5.grabchatapp.com/Mine/InviteMale.aspx?channelCode=C1003&ID=7336902)  | [正规-国际男女交友](https://h5.grabchatapp.com/Mine/InviteMale.aspx?channelCode=C1003&ID=7336902)| [正规交友-男生进入](https://h5.grabchatapp.com/Mine/InviteMale.aspx?channelCode=C1003&ID=7336902) | [正规交友-女生进入](https://h5.grabchatapp.com/Mine/InviteMale.aspx?channelCode=C1003&ID=7336902)|
-| 注意下载选项👉                                                |      请选：通过第三方浏览器下载✔                                              |                                        快速直达       |        国外男女聊天，练口语请进                         |
-
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 
 
